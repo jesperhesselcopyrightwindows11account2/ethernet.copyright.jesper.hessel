@@ -1,0 +1,2 @@
+# ethernet.copyright.jesper.hessel
+ping-pong-ballctrlaltdelete.setup.1.sint-ball.2.sint-ball.ethernet.copyright.jesper.hessel.  Xp.Eplode.Nt.Implode.Defend.Yourself.Perfect.Firewall.Copyright.Jesper.Hessel.
